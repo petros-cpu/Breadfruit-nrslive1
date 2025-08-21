@@ -86,3 +86,4 @@ Serving idea: Healthy snack alternative to potato chips.
 How: Boil or steam, then mash with a little coconut milk or olive oil.
 
 Serving idea: Substitute mashed potatoes in recipes.
+contact details of owner of this website:email:lifejackin@gmail.com,contact number:1868789-0535,social media:instagram,facebook,youtube etc...
