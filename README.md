@@ -31,8 +31,7 @@ Health Benefits:
 6. Weight Management: Fiber-rich and low in fat, it can help in feeling full and managing weight.
 
 
-7. Blood Sugar Control: The fiber slows down sugar absorption, which may help maintain stable blood sugar levels.
-Boiled Breadfruit
+7. Blood Sugar Control: The fiber slows down sugar absorption, which may help maintain stable blood sugar levels.Boiled Breadfruit
 
 How: Peel, cut into chunks, boil until soft (15–20 min).
 
